@@ -13,6 +13,8 @@ Feel free to sign my [Guestbook](https://ghostchi.123guestbook.com/)
 
 If I sent you a friend request don't worry I just send friend requests to any persona ponies.
 
+Don't bother clicking my StrawPage link my website is broken for some reason.
+
 ![tumblr_3fbd08acde8f40b18d2893264a0bf0a3_6ce0e881_400](https://github.com/GhostChii/GhostChii/assets/163073394/d9ff911f-a62c-4c35-98e4-b3feff6fa322)
 ![tumblr_3fbd08acde8f40b18d2893264a0bf0a3_6ce0e881_400](https://github.com/GhostChii/GhostChii/assets/163073394/57fe4c8b-ab63-44c8-b589-d16cf901cfc7)
 
