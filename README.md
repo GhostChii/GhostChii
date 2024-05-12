@@ -5,7 +5,7 @@
 
 # Welcome!
 
-I'm Chi/Ghost Chi. Any pronouns, Bisexual, Adult.
+I'm Chi/Ghost Chi. Any pronouns, Bisexual.
 
 You probably found this from my ponytown ponies.
 
