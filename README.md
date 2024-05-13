@@ -44,7 +44,7 @@ Omori
 
 ### I block people who are/support
 
-![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/c50c8848-891e-4104-94c8-1f32fab262ca) Hazbin/Helluva [Unless i know you], South Park, Harry Potter Fans
+![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/c50c8848-891e-4104-94c8-1f32fab262ca) Hazbin/Helluva [Unless i know you], South Park, Coffin of Andy and Leyley, and Harry Potter Fans
 
 ![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/e596f116-4039-452a-b500-05fb91727ca8) Proshippers/Comship/Ship Incest/Pedo
 
