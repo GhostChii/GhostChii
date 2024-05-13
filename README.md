@@ -48,7 +48,7 @@ Omori
 
 ![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/e596f116-4039-452a-b500-05fb91727ca8) Proshippers/Comship/Ship Incest/Pedo
 
-![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/a5bbe426-1b93-4dfd-aaa4-9b1ad538354d) Exclusionists [INCLUDING anti mspec gay and lesbian/lesboy/etc]
+![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/a5bbe426-1b93-4dfd-aaa4-9b1ad538354d) Exclusionists [INCLUDING anti mspec gay and lesbian/lesboy/etc] [MAPS and other dangerous and nonconsensual paraphilias pretending to be sexualities do not count for this]
 
 ![dd63e244](https://github.com/GhostChii/GhostChii/assets/163073394/244070b2-c700-4261-b9a1-77fe0fb6d1b9) You dislike any of the characters I like
 
