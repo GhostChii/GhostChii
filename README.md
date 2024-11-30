@@ -9,7 +9,7 @@ I'm Chi/Ghost Chi. Any pronouns, Bisexual.
 
 You probably found this from my ponytown ponies.
 
-Feel free to sign my [Guestbook](http://users3.smartgb.com/g/g.php?a=s&i=g36-36546-0f) or my [Retrospring](https://retrospring.net/@GhostChi)
+Feel free to sign my [Guestbook](http://users3.smartgb.com/g/g.php?a=s&i=g36-36546-0f) or my [Strawpage](https://ghostchi.straw.page/)
 
 If I sent you a friend request don't worry I just send friend requests to any persona ponies.
 
