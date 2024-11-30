@@ -37,7 +37,7 @@ D. Gray Man
 Vocaloid
 
 ![88728dff](https://github.com/GhostChii/GhostChii/assets/163073394/9c75e725-3fd2-44fc-abf5-699eb7d0bf94)
-Omori
+FNAF
 
 ![tumblr_3d316ecbccff9c1a9719eaed81aa784c_039268ad_400](https://github.com/GhostChii/GhostChii/assets/163073394/35ca06e2-416b-4c88-92dd-506427e85b52)
 ![tumblr_3d316ecbccff9c1a9719eaed81aa784c_039268ad_400](https://github.com/GhostChii/GhostChii/assets/163073394/5e67f7db-c241-416a-89ad-50ca9f40b807)
