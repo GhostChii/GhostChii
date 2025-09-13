@@ -9,7 +9,7 @@ I'm Chiize. he/him and poly
 
 You probably found this from my ponytown ponies.
 
-Feel free to sign my [Strawpage](https://ghostchi.straw.page/).
+Feel free to sign my [Strawpage](https://ghostchiize.straw.page/).
 
 If I sent you a friend request don't worry I just send friend requests to any ponies from stuff I know.
 
