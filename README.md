@@ -5,7 +5,7 @@
 
 # Welcome!
 
-I'm Chi/Ghost Chi. Any pronouns, Bisexual.
+I'm Chiize. he/him and poly
 
 You probably found this from my ponytown ponies.
 
